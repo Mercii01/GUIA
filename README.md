@@ -10,7 +10,4 @@ hui
 privet
 mmm
 sergio sosi hui
-jfjkddgj
-la ultima
-oooooooo
-sergio
+jfjkddgjdwawdaawddawsergio
